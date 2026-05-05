@@ -1,1 +1,0 @@
-# Environmental-Crisis-and-Sustainable-Development
